@@ -17,17 +17,17 @@
 
 ## Method
 
-*Add the sugar and melted butter in a bowl and mix together – a
+* Add the sugar and melted butter in a bowl and mix together – a
 wooden spoon is fine, no need for a whisk.
 
-*Sift the flour, baking powder, vanilla and salt together and add to the
+* Sift the flour, baking powder, vanilla and salt together and add to the
 sugar and butter mixture. Add the chocolate chips at this stage if
 you’re making chocolate chip cookies.
 
-*Mix together using your hand. Once you get a dough texture, add
+* Mix together using your hand. Once you get a dough texture, add
 the egg and knead using your hand again.
 
-*Spread some butter onto a baking tray. Take some of the dough, roll
+* Spread some butter onto a baking tray. Take some of the dough, roll
 into ball then flatten a little. Keep them on the small side as they
 spread out during baking. Also, don’t keep biscuits close to each
 other otherwise they will get stuck together.
